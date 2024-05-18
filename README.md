@@ -4,3 +4,5 @@ Welcome to dji's Robomaster S1 Robot Ground Assault Drone
 https://youtube.com/playlist?list=PL-Jc1Yxezi_ShdaaEPE3mSawOt79ewUPZ&si=k-F1O8llbzAoCmbT
 
 Joseph C. Richardson, GitHub.com
+
+I am almost a complete Walking Human Computer Science Research Laboratory Machine on Two Legs. 😁
