@@ -5,4 +5,4 @@ https://youtube.com/playlist?list=PL-Jc1Yxezi_ShdaaEPE3mSawOt79ewUPZ&si=k-F1O8ll
 
 Joseph C. Richardson, GitHub.com
 
-I am almost a complete Walking Human Computer Science Research Laboratory Machine on Two Legs. 😁
+I am almost a complete Walking Human Computer Science Research Laboratory Machine on Two Legs... 😁
